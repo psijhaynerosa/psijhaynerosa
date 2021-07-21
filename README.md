@@ -1,7 +1,8 @@
    👋 Hi, I’m @psi.jhaynerosa!
 
 I'm a psychology major and I work with technological recruitment.
-You can see my skill is not programming, so I'm looking for you guys!
+
+You can see my skill is not programming, so I'm looking for you guys!😂
 
 
 
